@@ -3,3 +3,4 @@
 - Kunal Kushwaha says that this community is amazing.
 - More power to kunal. love the work which your are doing for the community.
 - Anirudh Sharma finds the Community Classroom initiative really great!
+-This course is amazing! Raj finds its helpfull the community by keeping this course free to all.
